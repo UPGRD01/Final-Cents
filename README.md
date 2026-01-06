@@ -1,1 +1,1 @@
-Website In 5 Years 1 In 50 Of You Will Be Extremely Richer Because You Played This Gamble And The 49 Others Will Be The Exact Same .  See What A Coffe Or Apple Juice A Week Could Cost Or Get You Cash In Come On 3.50 A Week Of Your Rounded Up Spare Change . 
+Website In 5 Years 1 In 4000 Of You Will Be Extremely Richer Because You Played This Gamble And The 49 Others Will Be The Exact Same .  See What A Coffe Or Apple Juice A Week Could Cost Or Get You Cash In Come On 3.50 A Week Of Your Rounded Up Spare Change . 
